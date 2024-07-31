@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Mr-juba
+- 👀 I’m interested in projramming
+- 🌱 I’m currently learning C at 42_Abu-Dhabi
+- 💞️ I’m looking to collaborate on ...
+- 📫 reach me DM
+- ⚡ Fun fact: 😳
